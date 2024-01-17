@@ -1,0 +1,1 @@
+# langFunnyDev.github.io
